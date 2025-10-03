@@ -37,4 +37,4 @@ instagram
 @ftmamorgana
 
 discord
-Fatma Khoeruzdzikrin#1234
+Fatma Khoeruzdzikrina#1234
